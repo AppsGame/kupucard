@@ -1,0 +1,2 @@
+# kupucard
+Ll
